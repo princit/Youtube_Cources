@@ -287,4 +287,15 @@
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/4455ea9b-5860-4f74-89d6-13366a04ec3e)
 
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/7a52afb7-2cd0-4132-a972-b45ff6e7d7a4)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f45f4481-f26a-4907-a74b-0699f6628bf7)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/251a7e31-2c46-44b8-9872-677e1a8159c7)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/89d9b153-1e59-48f2-9784-c50248bf0dcd)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/32899cc7-771b-4e22-8997-e83aa78f5bb0)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a1843f78-7992-465e-abc1-4f9ce68fbdcb)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/46425fd2-b722-4041-b191-7f37bd585237)
+
