@@ -1,4 +1,4 @@
-<table>
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d38d7817-b388-418a-a6dd-fe85c6d9172b)<table>
     <thead>
       <tr>
         <th>Supervised Learning </th>
@@ -657,6 +657,21 @@ Deep Learning
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ae17a731-df6c-4da8-98f9-9720b72033db)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c4ba51a7-0bc4-47c9-befc-c16f351b8ab8)
 
-![Uploading image.png…]()
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/805b497d-ce99-494d-88f9-91872054f483)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ba11ea05-ca4f-4046-a5ee-ad3c274863b1)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9690ec39-e5a4-4a6b-b58e-397df27fb23f)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/943bb545-c48a-41ee-9d51-a7ccce39dd15)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f2b73ecc-b073-460f-b5b2-7c8b070ba003)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bafe1ddc-6e17-40c7-ad7f-8f48942e8875)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b3d13bda-bfd7-46b5-bad5-bfcb3c0462a2)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e2a9c6a5-23fa-4a67-8c40-1ab643a97bcc)
 
