@@ -679,4 +679,6 @@ Deep Learning
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/47b0f9ab-5e4b-4014-bea7-d8173e57d8ed)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bdcdd647-1950-4ce8-8738-7cee717edb8d)
+
 
