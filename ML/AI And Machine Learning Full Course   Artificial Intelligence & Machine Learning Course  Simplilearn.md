@@ -566,3 +566,37 @@ Limitation
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/74bf613f-c8a7-435a-bf41-07d66b47c4ad)
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/fcbad97a-3527-4cfd-b44e-ec12fc54797b)
+
+Deep Learning
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/dd493dc7-b1a3-4aa9-8d91-047180baa41a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/31a2c1ab-0300-41b8-bd1a-081456a3204d)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1341b95d-a728-4ad1-ab22-a3866ed48503)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/14666243-72f8-4b7a-91ce-b8d93a1b0330)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4252f64a-31a3-4031-a201-5b6c2b95ca86)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/827eea09-f734-4920-8392-4e15c3864e2f)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5a5a1ff9-c228-48a8-a98c-51ee54fc1b70)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5af13405-09e4-4d71-88eb-3bb8facd1f9e)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/254f34ba-505d-4884-a1f1-88ff23836509)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5f77b211-dff1-4ee0-9d0d-b90493c6e147)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/daa1e8c4-d373-4799-9c72-13ab367e020a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c524aeb3-7678-4c3b-a86a-5bad0b7ff751)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/248573f8-28b8-4876-896c-b14730049db8)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ef04a674-e7f3-489d-b224-a5f0f2346a1c)
+
+
+
+
