@@ -1,4 +1,4 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/d38d7817-b388-418a-a6dd-fe85c6d9172b)<table>
+<table>
     <thead>
       <tr>
         <th>Supervised Learning </th>
