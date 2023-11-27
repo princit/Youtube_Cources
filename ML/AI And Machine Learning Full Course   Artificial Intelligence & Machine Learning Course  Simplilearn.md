@@ -1,4 +1,3 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/aff642ea-0ee7-4060-9434-e5b8ceee66e7)
 <table>
     <thead>
       <tr>
