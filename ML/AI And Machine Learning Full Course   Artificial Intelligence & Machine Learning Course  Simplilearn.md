@@ -705,5 +705,17 @@ Deep Learning
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/86242083-516d-4c8f-9614-a37a59545db8)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7a004199-babb-447d-92c5-74b47ce2c0ce)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cf441300-c5b6-487d-ac76-220bbc0c4f0e)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8e583fa2-a8bc-434c-968c-4e35904e2c86)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0870d618-2c78-47c9-b572-8dd38b63ad43)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/36645925-52a7-4ea4-b5ec-4f66be00c4d9)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2546f281-dc8e-4704-922c-f876f9277b8a)
+
 
 
