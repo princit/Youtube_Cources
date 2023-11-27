@@ -792,3 +792,31 @@ Deep Learning
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/11a0d67c-89b5-4d7a-b4b4-ce8304c0fc4e)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cf596c26-e4cb-4c4b-bd3f-c51334381936)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6d93ea7d-710e-493d-bfe4-840e851bdb92)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9444de7d-7929-4f97-b850-271c20721968)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/47842239-f200-4176-a878-da27db555409)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/12d1ad77-99b8-40e1-92e7-7a2891c5b031)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4e31276c-be7d-40ed-a409-41d00cd9fe98)
+
+transpose and reshape are equal
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/315e3249-64c9-4fa9-acb3-e41ea4d4f294)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/56ae8123-c70a-4da3-a83e-d07e65b2cd68)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/02e1a6c7-8bb0-4ca2-a17b-af7fa0b28404)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/227dd238-849d-4457-bc2a-1616a05c214f)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1be3268b-42c0-4671-916a-a3a0a900bd74)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/efee4e1e-dcdd-4e54-a2db-53ccda914f2e)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2262c705-e835-4045-8077-a0d5858dab8b)
+
