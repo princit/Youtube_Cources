@@ -747,3 +747,29 @@ Deep Learning
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f758224f-cdc8-4388-96d6-906f278cd99c)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/57dcc2dd-b8d4-4cf3-b648-2021017f8345)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fe812cd3-75a1-4add-b085-5779e47710a0)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/845271a8-8690-427e-a1b4-c4002387d6b2)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0cd4e1c7-8a0d-49c2-b141-4da9ae82e6bb)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/70f0c7dc-53ec-44b9-ae61-cde44fc1e90e)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/14da2139-f7f9-4b61-a948-073229c8e209)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b4cc9a42-ac9e-4cc3-b688-61528df7cc3b)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7f935bca-6d7f-4669-9e27-fb0f953ad993)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5d183e7b-76ca-49cd-90a3-146d351e4481)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0490c389-2bc8-45da-9873-3d9b3a22953a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9db7ce8d-32c2-4dff-a2f6-560e354a1561)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/19c76da8-0346-4ab6-9635-e5da07fbbca1)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2c875fb2-b64f-440a-83e6-5bb196007a66)
+
