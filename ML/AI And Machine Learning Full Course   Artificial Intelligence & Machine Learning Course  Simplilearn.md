@@ -819,3 +819,15 @@ transpose and reshape are equal
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/2262c705-e835-4045-8077-a0d5858dab8b)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6367ab72-1dd2-4fb0-950f-b93209a230f2)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2c7a12a1-bc10-45c9-af25-5aef17cae6f8)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/223e6c01-dc6c-43f3-bcf6-9ec5339ba513)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1191f269-5b5d-42ac-a904-c4357ab3343a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e943536c-30b0-4ab5-9bcd-0c300635cda8)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/eaf1ec78-d4d5-462f-86cc-95452a50ede8)
+
