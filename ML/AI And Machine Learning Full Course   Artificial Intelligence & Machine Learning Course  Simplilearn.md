@@ -863,4 +863,41 @@ transpose and reshape are equal
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/49ef0a64-b77c-48c9-9996-ddd1b13c97c5)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2fb81718-964f-479d-9982-c1733bd65f7e)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7560fa0e-611a-43db-8b03-cc75ed4820ba)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/15c0daed-f5d4-49cb-9b7d-e91c4f54373f)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a9d0aca7-62f5-4c7e-863a-2210e86eeee3)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a2ef4863-da8c-4063-ad35-ca82147b5305)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8d092772-69b1-4140-a7ad-dbe5a8e04028)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/735c6055-fb51-4441-9de3-3baa6d97e643)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9cae56fc-78e6-4190-8966-25e3163dc70b)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c3e2e6af-1a19-4111-a2a7-3bcdf4ceb179)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1cce55d0-1cbc-45c0-b4ca-0ab6b2691aa0)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9a619e2e-b771-4e17-9143-41ee66fc46fc)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c4fc51a7-63be-4058-9372-0fadb8d365be)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/45315b70-f263-41bf-9ea6-f7fc7d2bdd5d)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/342458ff-f735-4773-acbe-5ce399cd2234)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ffde1e5d-a4b0-4124-aec5-354eb1ff37b0)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b825a92f-275e-457f-a418-0fe4a7e59243)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/976da9fa-9752-41e2-8a01-b448f770bb7a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/57a480dd-4f33-4e63-8642-cb1e50dd7c28)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d898e491-a6f1-4cb9-896d-5bd21a13e073)
 
