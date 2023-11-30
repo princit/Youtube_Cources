@@ -837,3 +837,11 @@ transpose and reshape are equal
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/92ffb65f-e2bb-44e0-8afe-9b7f72dccbaa)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/013884e9-0f8a-449e-bb50-6616c5c0e691)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b6014a12-a564-40d2-85eb-e4152de77659)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4ea767cd-3ba1-4279-81c1-f44a4cb64d50)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/71ee804d-533d-4283-8d2c-83c4f3ff1ce3)
+
