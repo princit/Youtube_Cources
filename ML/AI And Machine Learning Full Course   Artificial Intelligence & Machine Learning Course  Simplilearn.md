@@ -901,3 +901,10 @@ transpose and reshape are equal
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/d898e491-a6f1-4cb9-896d-5bd21a13e073)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ccccf4fe-dc7e-4b29-9b82-85e4d20de809)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/319e1b13-5b39-4a37-a9c4-6b065f146fc5)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/32982265-ed90-40f0-a800-552cff38e53c)
+
+
