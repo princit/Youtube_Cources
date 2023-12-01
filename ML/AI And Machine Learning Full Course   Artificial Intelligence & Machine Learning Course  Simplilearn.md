@@ -907,4 +907,31 @@ transpose and reshape are equal
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/32982265-ed90-40f0-a800-552cff38e53c)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/438ca05b-9f70-4528-b8e6-98d2d53cb622)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/884ed244-8eb3-417f-a236-b8d09f27e003)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1a15737f-3ca9-4c9e-b32e-e17539204c39)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/869fdfdf-a601-43e4-826a-0566dfa598c9)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ced7c264-f6a6-43ee-99d4-538d5cd43b0e)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9338acc6-d5f8-472b-b2c0-25a5311c2d4d)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/568e5217-018a-4262-966c-710a64b48271)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ba274816-29e8-4cd3-b13e-d449c5654683)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e9eed006-7495-4b67-b854-807a2fe011ec)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/836c7ad8-ac9a-4252-be56-e6f8d083842f)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a71e2b8d-f2a3-4bd1-876a-f97c12fab24a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b6b153d4-79f3-46ee-8c29-9d6df0ef484d)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fc8e78d1-68fc-4214-a26b-00fdd6a66d89)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8d0062c5-ffef-4a51-88a4-3052adc15f3f)
 
