@@ -959,6 +959,8 @@ transpose and reshape are equal
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/b52467f0-fc93-4d6f-b719-6eb6f73b99aa)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1cd68eea-79e5-4e20-8822-590c7f1eedb4)
+
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/dcdc0c1c-cb35-484f-bbe5-5ddead5438e4)
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/3f869827-c3a3-4899-96a0-b090db4eb5dc)
