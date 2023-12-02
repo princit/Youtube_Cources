@@ -24,3 +24,9 @@
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f1a3fe8b-54f5-4e9b-b336-20a1c1cdc431)
 
+
+
+AI --> machine to mimic human beviour
+ML --> to chieve ai using algorithm train with data
+DL --> type of ML inspired by brain of human
+
