@@ -1,4 +1,4 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/9281159f-e72e-41ee-b82b-01c8fab2944c)![image](https://github.com/princit/Youtube_Cources/assets/29123911/2beafda5-c2f8-4c76-bfcc-e39efd292b61)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e6e8f200-9d34-4b73-b3ee-6279ebeecdd8)![image](https://github.com/princit/Youtube_Cources/assets/29123911/9281159f-e72e-41ee-b82b-01c8fab2944c)![image](https://github.com/princit/Youtube_Cources/assets/29123911/2beafda5-c2f8-4c76-bfcc-e39efd292b61)
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/49ce3086-6171-4f32-9b6c-6ecc2a8b614a)
 
@@ -43,6 +43,14 @@ DL --> type of ML inspired by brain of human
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/475d32ab-3942-4ff0-9f53-013931ae9ed3)
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f773ba95-fe1e-4424-a0a1-5b8fcb41674a)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/372065bc-bae3-441c-a839-cb6f68a6b82c)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3a364a2e-96ec-45fd-b15b-6a06f3d165ff)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/72a66bcf-38ad-491e-989e-5dc5c9f4ebee)
+
+
 
 
 
