@@ -1,4 +1,10 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/e6e8f200-9d34-4b73-b3ee-6279ebeecdd8)![image](https://github.com/princit/Youtube_Cources/assets/29123911/9281159f-e72e-41ee-b82b-01c8fab2944c)![image](https://github.com/princit/Youtube_Cources/assets/29123911/2beafda5-c2f8-4c76-bfcc-e39efd292b61)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/df0c341a-a6e1-4c3b-a073-affe1d442dff)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e6e8f200-9d34-4b73-b3ee-6279ebeecdd8)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9281159f-e72e-41ee-b82b-01c8fab2944c)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2beafda5-c2f8-4c76-bfcc-e39efd292b61)
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/49ce3086-6171-4f32-9b6c-6ecc2a8b614a)
 
@@ -24,6 +30,7 @@
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f1a3fe8b-54f5-4e9b-b336-20a1c1cdc431)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5579a22e-e568-4bb9-b6e9-8b52c42d26ac)
 
 
 AI --> machine to mimic human beviour
@@ -56,6 +63,7 @@ DL --> type of ML inspired by brain of human
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ab2a3f64-df4a-4809-88de-bb6fc6205492)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/49aa4655-684a-4e1e-a998-c73e1ba47b4e)
 
 
 
