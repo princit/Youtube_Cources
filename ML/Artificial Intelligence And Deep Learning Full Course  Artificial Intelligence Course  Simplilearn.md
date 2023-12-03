@@ -50,6 +50,12 @@ DL --> type of ML inspired by brain of human
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/72a66bcf-38ad-491e-989e-5dc5c9f4ebee)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/80075ae8-6cdc-4892-aa74-9596be4835d6)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bdd03654-03ba-4459-bc6a-93441a30f6f3)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ab2a3f64-df4a-4809-88de-bb6fc6205492)
+
 
 
 
