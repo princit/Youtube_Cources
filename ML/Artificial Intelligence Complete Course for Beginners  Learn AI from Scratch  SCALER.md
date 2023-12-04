@@ -72,7 +72,23 @@
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/4991bb3b-3683-4438-9121-281017047d8b)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3805b2b5-36f1-4264-a613-835c280520f8)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3b972a3f-a9c5-437e-99b9-900dc234ca84)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e02a1da3-fd27-43d0-a8d5-e5027cbf78fc)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d66cb7b3-7a87-4318-8b62-1887087fcb86)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/26d6cbec-3373-4544-bce8-451a2cdf5750)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/dbac2485-7979-48f4-aba9-5064fafd93a6)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/569465a2-d8f5-4c3b-b884-c48f8b4b65fa)
+
+set of rules are called knowledge base
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ee11cc68-1ca0-4082-a335-46777cd13433)
 
 
 
