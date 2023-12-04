@@ -90,6 +90,20 @@ set of rules are called knowledge base
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ee11cc68-1ca0-4082-a335-46777cd13433)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4c2a311b-ac88-4b15-aa55-b3f68dfc7bb2)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7d530434-36f9-44d8-9050-0cf90dbc9b41)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cadd90e8-d01e-44a4-981a-b646e461ce68)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cd4406a9-7e07-4cab-84ea-f03d5af41833)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e9047538-8df6-4a4d-b5e4-4029cbf1d6b9)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f241a68a-b6a0-4ddf-8304-0e7eee34efc5)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/165874d1-3385-4f1c-bb77-90ed43b2d9fc)
+
 
 
 
