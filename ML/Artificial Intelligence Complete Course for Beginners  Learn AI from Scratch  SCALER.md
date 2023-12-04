@@ -160,7 +160,25 @@ set of rules are called knowledge base
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0fdd11eb-96e5-4885-a0e8-91c3e39efb8f)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b3892d59-e9ab-4dba-a7e2-e6e17aaf1df0)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e44f2dc5-3420-45a1-a4c1-87b525e29b05)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/32525724-db31-4d4b-95fa-ececd56fc19c)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3c5fcaf5-0a6a-43e6-ba68-0b94391f3476)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/abfb7b88-0b49-468b-bd30-c41bdf53d363)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/134200d2-3ec9-4a9a-b34d-97eab8f4c4db)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/060b3e2f-ed8e-4d70-af46-626b2204a6ca)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fa985fbd-9285-4d09-83ab-7f55346050c1)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/045de67d-648b-480c-aafd-abf1f274f1c4)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/336f44cb-b4ca-4c78-8b13-0c967fd33f0e)
 
 
 
