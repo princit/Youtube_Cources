@@ -14,7 +14,9 @@
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/71162471-3445-43e2-9241-cd5fd85d7e93)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3520b291-c849-4f18-a589-f3d81bff350f)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/eebce0bf-d110-4e2b-b155-6e931693b6bb)
 
 
 
