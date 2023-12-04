@@ -128,6 +128,19 @@ set of rules are called knowledge base
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7fbe3985-3a2a-4336-bc00-30f819e2c8a6)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a22ba9a3-b23b-4010-a228-e10c9825f519)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/48bdb432-5882-4dea-9812-13998bacb27f)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d85e8969-692c-4d3e-804f-7f73f01b8003)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e4ba9fb2-f777-4464-bac7-01d7a2b8aee0)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5eb209bd-eb19-4a76-86d0-394df54649ec)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6f37d327-f6fa-42ca-b692-3c98a235f011)
+
+
 
 
 
