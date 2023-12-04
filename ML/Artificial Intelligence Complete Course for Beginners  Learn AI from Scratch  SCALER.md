@@ -32,4 +32,8 @@
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/b5588dee-c06e-44b7-b42d-23d64f5093f5)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/928aa223-783e-4f84-8f9b-dd1cc621208b)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c1987515-24fb-475e-8145-902f64403a77)
+
 
