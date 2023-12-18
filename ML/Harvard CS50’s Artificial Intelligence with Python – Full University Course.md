@@ -19,6 +19,21 @@
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/06348389-cd4d-4c19-9ed3-9c87d5d608f6)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/3affc529-ec7d-4cfa-9ec6-a915b0e25436)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ff044191-b80f-449b-82fa-c89d10f9279b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ced80afb-aa61-4b0b-b2e8-f13d15bb058e)
+infinite loop 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/45b75352-7174-46f3-9bc6-fdcb117db945)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/30278d9d-5808-4168-9341-38f3205303ec)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/03ebdbc7-995a-4dec-9784-700d8e31c206)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bde0ae1b-73a4-40f3-96af-5f7740b1c664)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2fdca7c8-383a-405a-bba7-4628b4561b09)
+
+
+
+
+
+
+
+
 
 
 
