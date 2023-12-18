@@ -60,6 +60,13 @@ I want to win other want me to loose
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/fab515d2-0d1c-45a0-8bb6-4d6a698600f6)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/e3491aa1-11f1-4a23-a399-9dbe17a820b4)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/4218debc-3842-4202-8554-cbcb6bb4a61f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/74352a6f-d5e0-4d11-8234-2856ed02fa64)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5e71436c-f703-4683-86a4-44a3a83815d1)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a8b0fc59-5a88-4121-876e-04dd5ad6ef5e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/911611a9-b6c6-4802-a311-3b180ad58650)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/81ba254e-ae93-4fea-bb2d-9b5e32f45eaf)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/862f0211-075a-4699-aec3-a8705ea91f8a)
+
 
 
 
