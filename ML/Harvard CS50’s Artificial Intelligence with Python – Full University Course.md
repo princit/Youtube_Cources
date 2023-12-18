@@ -27,13 +27,11 @@ infinite loop
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/bde0ae1b-73a4-40f3-96af-5f7740b1c664)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/2fdca7c8-383a-405a-bba7-4628b4561b09)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ec4d72f0-4524-402a-81bc-f95b99226df6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f0361870-5e4e-4060-80b3-450d0e6cde3c)
 
-
-
-
-
-
-
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6da62b03-c763-4988-9811-b55aee427331)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2c2baca9-6890-4f1b-b44f-8b7bc1a90adb)
 
 
 
