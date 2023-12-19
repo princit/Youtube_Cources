@@ -78,9 +78,16 @@ I want to win other want me to loose
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/563ce93f-a1be-429e-8fcc-06569fbd9370)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7b324599-d69d-4741-a650-8044c6f0eacd)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7439c70b-f9e0-40f0-91e1-7af58d13d40e)
-
-
-
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e66cce61-1f8a-4535-9c09-3f32069d82e0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9613b8da-7e27-48d6-b1d5-635ee1e8ce51)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1d0a69f4-ff0f-44f0-b192-4f9ece2bd02b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/628870ea-2b77-4f8f-ad8f-2586fbdb6136)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7342957e-6715-4033-b417-710bc0295261)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5d18d3e0-6f25-44b7-adc9-c025c71d3d53)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ad43524d-a16d-4d35-a366-c3df22ba406d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/81f52f3d-8670-4c14-9380-cafc0124da95)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f6df3009-2a07-4770-84b2-489e42ce98cd)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c30d6d69-a7c8-4f7b-b840-6daead9dea1e)
 
 
 
