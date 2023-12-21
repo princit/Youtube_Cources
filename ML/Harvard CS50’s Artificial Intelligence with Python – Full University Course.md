@@ -1,4 +1,4 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/8245fb0d-8eb6-47f5-982c-fae80d56f9b0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/08672b3c-e802-471b-a1a9-b99e945d69f0)![image](https://github.com/princit/Youtube_Cources/assets/29123911/8245fb0d-8eb6-47f5-982c-fae80d56f9b0)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0f3c17c5-fe5a-4e2c-8d4c-3afcfca43704)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/2fb8fe34-466e-47e0-920f-ed9cc6f539de)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/663d5739-4c77-4719-aeb8-4c4fafba1184)
@@ -208,6 +208,24 @@ I want to win other want me to loose
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f11a3b23-81ff-4703-8b30-abcd35bf544b)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/c361b764-ba51-41b4-9596-f14461a926cd)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0a74a20a-2949-46e8-a43a-eb15f5350325)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d3fc47a6-9525-4155-a736-8d1a5e98753a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/58593b04-32af-4121-92da-489a23900d7e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1fce1d5b-4769-401c-b245-6195de71d46c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/54e59aec-45e8-42d6-8ba5-1b24253d66d9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/119792e-527a-4d7a-9ab2-8f75e71ba37e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/781b6859-b40f-4d2e-b1c6-6154fca8439f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/33ce2543-5106-4ddb-b232-b3c7d6e2cf7c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/825d97e8-3524-47d4-b15e-b547606bd523)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/dcf7b620-e10a-40cc-ba70-13bf69df8ae6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/09ee7ba6-9724-4a48-bd47-0344b2ab4337)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c82ebc6a-d9d1-41fd-b5cc-58bae745ddbc)
+
+
+
+
+
+
+
 
 
 
