@@ -1,4 +1,5 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/ab0ea55a-541d-43e8-a943-0ad1a3e99e7c)![image](https://github.com/princit/Youtube_Cources/assets/29123911/913607af-6c0a-483f-b44b-04f3c77c84ba)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3df4861f-3b2f-4dc6-bcac-af3b763e43e9)![image](https://github.com/princit/Youtube_Cources/assets/29123911/ab0ea55a-541d-43e8-a943-0ad1a3e99e7c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/913607af-6c0a-483f-b44b-04f3c77c84ba)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/08672b3c-e802-471b-a1a9-b99e945d69f0)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/8245fb0d-8eb6-47f5-982c-fae80d56f9b0)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0f3c17c5-fe5a-4e2c-8d4c-3afcfca43704)
@@ -330,6 +331,43 @@ remove the last pile is looser
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0ecc7b26-1ee6-4ec9-89c4-773548f12fae)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/822d6e5c-d6fe-48f9-b1d6-2ab888aae488)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/c227973e-709f-4574-9986-0d78baf71c10)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fcf86820-4d28-40c2-bf39-6c84fd9458f6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/69986a32-cfb7-42cd-9ef7-34cc9a9d2ec0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/63c53511-a210-446d-9946-7bd8889e30d6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9f17094c-cec5-43f8-a074-03ba96bd32a3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c16c3b45-25d7-4e84-8340-310354dfc08e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4d13bad2-2bc6-41c7-aafd-d2852f6eb0af)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/99686e80-afe5-4bc8-a2b6-c3523bc7dd11)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2eda2143-c743-471e-a1c1-9bac9ae3c545)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e111294f-eaab-4882-8b4d-3d61dc94d4dc)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2c14d3f0-1594-4fa8-8578-18fdf2131a77)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8e79cf9c-f17f-437c-9273-33ee719c0b68)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8f1ab9b9-3e06-44f9-b380-6151fc64d7e1)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/849398a5-8d61-44ce-8cbb-ce6953f8412c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/28e04eb3-4a41-4ef1-b3a6-474f645fd4d1)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/33e3ca23-e619-4c07-bdb9-77533b260658)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cedcfa87-ea46-4c2b-b2c0-ac1cde5a1220)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/99699786-e616-4ae5-9dad-87df5f4d8fcc)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5272b7e3-8b32-401f-96bb-0984056202a8)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0669057a-b2fb-4d26-a2ee-32231ceec9db)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5bb78f84-9cb6-4eee-94d3-0f340842518a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fa0ee806-372d-43f7-94e5-db7626c185b3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/850db1f9-3454-4d8c-839c-4948ab0ea9c1)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b580c385-1246-4f6f-b15e-50aa3e30ace2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/07eaebf4-fdb7-416c-a653-61e28676dae2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fd598bd1-7fde-4b87-80de-ce5978c9124f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/73fae266-c283-4e67-a512-e566385c659d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/52843713-e430-4ce8-a94b-a1294eae094a)
+
+
+
+
+
+
+
+
+
+
 
 
 
