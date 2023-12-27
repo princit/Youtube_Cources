@@ -1,4 +1,5 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/3df4861f-3b2f-4dc6-bcac-af3b763e43e9)![image](https://github.com/princit/Youtube_Cources/assets/29123911/ab0ea55a-541d-43e8-a943-0ad1a3e99e7c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/738eb77d-24f1-491b-8937-4a4b2a63caa0)![image](https://github.com/princit/Youtube_Cources/assets/29123911/3df4861f-3b2f-4dc6-bcac-af3b763e43e9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ab0ea55a-541d-43e8-a943-0ad1a3e99e7c)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/913607af-6c0a-483f-b44b-04f3c77c84ba)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/08672b3c-e802-471b-a1a9-b99e945d69f0)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/8245fb0d-8eb6-47f5-982c-fae80d56f9b0)
@@ -358,6 +359,12 @@ remove the last pile is looser
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/fd598bd1-7fde-4b87-80de-ce5978c9124f)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/73fae266-c283-4e67-a512-e566385c659d)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/52843713-e430-4ce8-a94b-a1294eae094a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d18c067c-8f52-4dd9-9d31-166275e3a837)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6727374d-0953-4e15-9177-a1c01acfddc5)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/50fbf8f2-fc5c-421b-8acf-c2569953b4fe)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f9ec856a-5dc2-4fa8-b7db-e65050083fb9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8bd7fe67-3b00-4520-b1c5-0c69d5bc0477)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/04d9ee29-b67b-4b0d-8532-341133b00625)
 
 
 
