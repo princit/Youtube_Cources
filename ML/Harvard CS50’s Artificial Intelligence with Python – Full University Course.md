@@ -365,7 +365,11 @@ remove the last pile is looser
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f9ec856a-5dc2-4fa8-b7db-e65050083fb9)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/8bd7fe67-3b00-4520-b1c5-0c69d5bc0477)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/04d9ee29-b67b-4b0d-8532-341133b00625)
-
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/020ac00b-f9e9-4a2c-ac94-5b7f269955dd)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9888b653-f9a3-4ca5-a717-e62f2d3808ec)
+ ![image](https://github.com/princit/Youtube_Cources/assets/29123911/e4527878-dc51-465e-846f-ed25425fe212)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9ba5c827-d7c0-4d88-b41f-c09390fa6942)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b19c64c4-667b-45a9-99df-53bd6298994f)
 
 
 
