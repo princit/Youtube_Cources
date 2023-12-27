@@ -370,11 +370,19 @@ remove the last pile is looser
  ![image](https://github.com/princit/Youtube_Cources/assets/29123911/e4527878-dc51-465e-846f-ed25425fe212)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/9ba5c827-d7c0-4d88-b41f-c09390fa6942)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/b19c64c4-667b-45a9-99df-53bd6298994f)
-
-
-
-
-
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b68aef9f-fd6b-4e7d-bcc3-329129968f3f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c4501129-06a2-44ae-a2d4-e936b30e0520)
+STRUCURE OF LANGUAGE
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/388bb03d-86d3-4da5-8b3b-b9671c84c582)
+Meaning of Language
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c6171480-50dc-4b00-8f5b-a146ccab22f3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/dd42ea2f-a19c-40e7-914f-6873c73379db)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ad7a96ba-0ef4-451b-960b-286559995dea)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fddd52bd-9951-4be9-8f8d-c6b3131965fa)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/80de320c-5370-49e1-b12c-5600fd5ceb28)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/44190abe-c070-489d-9902-1e25bdbbef57)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b7632a72-c50f-47c3-b700-292deeae7106)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/de2f442a-636c-4db9-a8d7-e14c358a51e1)
 
 
 
