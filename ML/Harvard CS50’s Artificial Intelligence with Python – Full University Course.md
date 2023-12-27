@@ -319,6 +319,17 @@ remove the last pile is looser
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/1c033a09-0749-4f7a-a3b5-ece02dedfa40)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/c19f7420-6286-4da4-a05d-758f0847b54e)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7ad094d5-b01e-4a5e-a021-e1237634fbae)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d5744d92-dab6-46ce-895c-ba53db40cdd4)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e926f50a-5345-476b-84ce-1f4e3127d2da)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5930bafb-c6ac-4550-b58b-a0ea2199e542)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f56bd0a1-cdcd-44f2-9c69-bf01781d137b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bc98ba04-0b30-438a-ac8c-6b97f1bf9b9d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d633cec0-6e37-4cf3-8e88-e1c0437b2860)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7bc71f1e-a098-49b3-8e22-b6595011dabc)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/003e94ef-5d89-4a64-8044-18a88950e54b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0ecc7b26-1ee6-4ec9-89c4-773548f12fae)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/822d6e5c-d6fe-48f9-b1d6-2ab888aae488)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c227973e-709f-4574-9986-0d78baf71c10)
 
 
 
