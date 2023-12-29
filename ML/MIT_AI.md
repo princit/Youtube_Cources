@@ -45,6 +45,20 @@ Alpha beta algorithm
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/32b6b3e8-63f2-43f4-b536-f2fbe3fc0a6c)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/da9035fe-7a0f-46cb-a5c7-ffc1df26a104)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/fc66e62d-919b-4528-8e18-55cf7a80df85)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/63bd7ad0-652f-45c2-ad73-6adf42dd1475)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/80c6b26b-4310-4d9b-9779-664f25135206)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/789d8154-3c5f-4a23-9ba3-bedeaa6f99ea)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ba757304-5159-4256-8262-3709a7e3d4e8)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/632a9e65-c3f6-41e0-ada6-d1aaecfd6eb0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/309ddf17-138a-4998-890b-3155d2bf8869)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/566d1039-95df-422d-9ec8-990fd09d84c2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9014e48d-53ac-4a6b-a1f2-cc7359c11783)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/66faa7bf-c8b8-4f3c-b122-cb3339e44aa3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e4633cf6-1c5f-4c81-9e6c-e419af942b8a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7b7a5c96-72df-45be-a1c2-149f9eca6bf0)
+
+
+
 
 
 
