@@ -87,6 +87,9 @@ Alpha beta algorithm
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ec9ee80f-e6e7-4374-a8f1-746c392a47d9)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/d2de74ac-f283-44e9-896b-e0eaf4f5f42c)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f0fa5d6d-f043-49f1-9aca-175eb1944a72)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3d24b609-bf42-40df-8b00-0b7af88145b5)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f2129077-25a8-4356-bdfb-e2e5969240bb)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/86deaddd-78b1-43c4-82f9-61a650798e62)
 
 
 
