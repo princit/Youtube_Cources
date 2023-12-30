@@ -98,6 +98,16 @@ expose the constaints
 
 localness
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/1641a98e-f173-469e-b731-9b7784b3e45f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bbcb5f87-a7f0-49c8-ac4c-ef8f201cef61)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/10c1fdda-45f4-46d7-a376-47dadba13be6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9a4a3cad-40ed-4cbc-8e72-4da8ae209d58)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/58f2d9cf-12a9-429d-859f-5289346573c3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fba53d72-443f-45be-b0a2-1ee216555a12)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2b3369ff-6d56-4a76-9a7c-eca8c97849c9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0fcd0b7c-849d-42b9-82f4-17eff9cd76cf)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d398a7ea-35f4-49e1-83fa-ca6bb7d3439b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ac31fe60-b871-4aba-a2f9-4e26dc636ca0)
+
 
 
 
