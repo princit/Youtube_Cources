@@ -73,6 +73,20 @@ Alpha beta algorithm
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/583d2352-63cd-4212-b95b-99d9044c7b2e)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0dd2b917-9f8a-43d6-99de-a6d385b51d4e)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ac8cb5e1-6ba7-414f-96b1-93f9f2d6cbb2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cac4bfc9-b0e6-4af2-a29f-a4baecbeb0c9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c5c9b918-38b5-4c69-8f2e-53e01fe7963a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8e7c872c-abd2-496a-9777-bda8a587729a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/534f2d51-c16b-4412-b6f5-0b108af5aad0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a1a3271e-03a6-4a3f-b2d2-22f626714b95)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d02b0185-a767-4762-bee5-f26788139fac)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6c78178c-beb3-451c-9080-b713468b0124)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/14f47744-0e2d-4288-9878-d259afd3269e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d0aa31a2-aad0-4da5-a5f7-cede384bbba8)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3a22a6bb-e19e-42d9-9f05-5faa99e72f94)
+
+
+
+
 
 
 
