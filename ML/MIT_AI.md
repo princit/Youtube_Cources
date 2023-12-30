@@ -56,6 +56,26 @@ Alpha beta algorithm
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/66faa7bf-c8b8-4f3c-b122-cb3339e44aa3)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/e4633cf6-1c5f-4c81-9e6c-e419af942b8a)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7b7a5c96-72df-45be-a1c2-149f9eca6bf0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b865b7a5-e363-4cbc-9db5-2544923a4a77)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/89d37f2c-9301-4fcf-88c9-7cc0c73943a9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6a34e773-7315-41e6-a09d-0917edd45605)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0261b981-1843-48a9-83f9-bd9970b061b1)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2fa4377d-d799-4750-ba09-a42c5fb3945d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a9bd7ced-3367-47c9-90ac-0301afaabfae)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/918d3e94-a9cf-42ea-bb7b-786c80fb3cf0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/23a3a83c-cb0a-41fb-9fd7-be3b98f11245)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1519ee4f-a720-4c4c-9387-ec290a3ff917)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/da9882eb-8817-49b9-8abe-c763caf64167)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8555be8a-5764-4bce-bbd2-b3fcd68c3660)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e76552ed-7afe-4606-ba92-160b37b6557c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/11adcd44-53a8-4e80-acb3-0cde7c87d413)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/90ef9439-af25-423f-8c22-774066f0b459)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/583d2352-63cd-4212-b95b-99d9044c7b2e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0dd2b917-9f8a-43d6-99de-a6d385b51d4e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ac8cb5e1-6ba7-414f-96b1-93f9f2d6cbb2)
+
+
+
 
 
 
