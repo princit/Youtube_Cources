@@ -90,6 +90,15 @@ Alpha beta algorithm
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/3d24b609-bf42-40df-8b00-0b7af88145b5)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f2129077-25a8-4356-bdfb-e2e5969240bb)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/86deaddd-78b1-43c4-82f9-61a650798e62)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/39c476d6-91a0-4780-b2f1-6c940f4259aa)
+
+explicit
+
+expose the constaints
+
+localness
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1641a98e-f173-469e-b731-9b7784b3e45f)
+
 
 
 
