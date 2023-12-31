@@ -137,6 +137,17 @@ localness
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/51e51c32-0c95-4e49-a4ea-384da95c473d)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7a8e3443-e0b9-4b2b-a1e2-6c92f73c6ce6)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b55f5c46-755a-47b0-948a-f239fb7d173e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fb1f7041-32eb-4b00-811f-a2d527c8d1b3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8360e812-e755-4ff0-84a4-c1cee0a04e58)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cfd1045a-f1ee-4b86-b568-67ef5f5f1754)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a483b465-5eec-4c7b-ad3d-1dff4961b14e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d2e1b2af-ef07-412b-95b7-6b78725f8d8e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/0733bf82-bbcc-4cc8-bd9e-9cef2ccbe44d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1372d558-c5fe-4781-b5d6-9a2c52c3e138)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c0f3c536-d024-40b6-bfb6-790defad3262)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4cc32fcd-206a-47c9-871e-280839a649c5)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e360618a-eca0-4566-b849-e610a68b958e)
 
 
 
