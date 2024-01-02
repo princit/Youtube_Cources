@@ -1,4 +1,4 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/311c8c41-43cb-4d67-be56-aef3a2460921)AI -->algorithm exposed by
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ce8925e1-323e-41c6-9b90-90619a9d5c5b)![image](https://github.com/princit/Youtube_Cources/assets/29123911/311c8c41-43cb-4d67-be56-aef3a2460921)AI -->algorithm exposed by
 
 constraints exposed by
 
@@ -180,6 +180,11 @@ localness
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f5c1e2c7-0dec-403b-8fc2-89c5bb335f89)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/4b048d67-b643-466d-a1ba-ad20c724bd63)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/bf142c69-4f90-4da3-ae40-fda75352f24d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/dbe52c2f-34b9-43ae-b679-e9056a74803d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5cbb31c7-c9b9-427c-a29d-4c0b070620dc)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ad008c46-a1e4-4b04-94e1-dc4a0d8c367b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/01e93c14-3e77-495c-8dfc-81de75d5f6d6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ba3e775b-3776-4787-bfa0-f9a994bf1392)
 
 
 
