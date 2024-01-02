@@ -177,6 +177,9 @@ localness
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/92593487-e6c7-4b81-a8ec-6b390525bdbf)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/d6cf358c-f513-43b7-a560-456484a4d7b3)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/a1c0716f-912e-4cc4-886b-e427bdeac55d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f5c1e2c7-0dec-403b-8fc2-89c5bb335f89)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4b048d67-b643-466d-a1ba-ad20c724bd63)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bf142c69-4f90-4da3-ae40-fda75352f24d)
 
 
 
