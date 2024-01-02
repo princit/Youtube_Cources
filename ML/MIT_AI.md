@@ -1,4 +1,8 @@
-![image](https://github.com/princit/Youtube_Cources/assets/29123911/ce8925e1-323e-41c6-9b90-90619a9d5c5b)![image](https://github.com/princit/Youtube_Cources/assets/29123911/311c8c41-43cb-4d67-be56-aef3a2460921)AI -->algorithm exposed by
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ce8925e1-323e-41c6-9b90-90619a9d5c5b) 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/311c8c41-43cb-4d67-be56-aef3a2460921)
+
+AI -->algorithm exposed by
+
 
 constraints exposed by
 
