@@ -185,6 +185,42 @@
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/7f671b45-33f4-4557-a280-d621a7d6b421)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/16b336fc-c292-4798-b285-95ad60ea8f5f)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/98eec14d-c172-4ed6-a3c6-61a5bf02a7b9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b9b925c5-d2d4-4345-82fe-252660050a30)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/624446b1-fc04-4537-9cee-756f8d344309)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5c3de2a2-3b76-43f4-83dd-789136c708ad)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5819c602-616e-496c-821b-218ca7d5aa7e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/13ddbaaa-4074-4255-a115-6f761eb13e0b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/996e1703-cdd7-4622-b6c5-a0f6a9221e0e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e6533fd6-9704-4a67-9dee-899ed91953fe)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/36fba96a-c44a-4cc5-b92b-3ad4706e6345)
+
+Mean Absolute Error
+
+loss = abs(y_true-y_predicted)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4b9bed5c-c33a-49bd-b6cc-80cd1051cbf2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fc373b32-d00d-4d43-b8a8-68989f5ace81)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
