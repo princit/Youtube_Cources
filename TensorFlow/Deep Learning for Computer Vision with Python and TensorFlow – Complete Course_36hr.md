@@ -224,6 +224,9 @@ loss = abs(y_true-y_predicted)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/259f635c-f7d7-4ae6-93ac-77fcb8a82249)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/24ade14e-8964-4f83-a88a-91b92f6ce75a)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/697171b6-e6ac-4e87-a3e9-7c6ffc725da7)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/11519d8d-59d7-4e57-9bb2-6d2ce978b076)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9021800b-42c5-4df4-840f-2931fd44ec13)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8cb5da0a-36bb-416d-a0f0-f20a67075359)
 
 
 
