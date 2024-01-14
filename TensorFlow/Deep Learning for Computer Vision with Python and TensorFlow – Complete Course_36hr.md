@@ -231,6 +231,23 @@ loss = abs(y_true-y_predicted)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/a87f914c-17a1-4593-bf59-27b523b7074a)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/88925561-11fc-4581-b913-efdc523c545e)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f717353d-5bfe-4d21-8af8-b2c98275b153)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9b88ec0a-3d63-4a47-9217-9935bf113412)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ef6379ca-686a-4f96-9329-b143fb331dea)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a7acd881-b758-4de4-ad5f-9fcafdf257a1)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b7918176-71e4-4a24-9b85-e7ab1f6f0292)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d485a6d5-7b79-4966-8a1b-d875a26f32aa)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fb3e16ef-b9ec-4808-a736-a1374e93221f)
+
+
+
+
+
+
+
+
+
+
+
 
 
 
