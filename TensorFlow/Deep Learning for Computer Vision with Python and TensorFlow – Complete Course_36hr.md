@@ -275,6 +275,13 @@ loss = abs(y_true-y_predicted)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/2ae47d22-0560-477b-813c-f73b5a7249ce)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/cb96a517-92d5-48dc-8d78-bff55406b005)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/bfb6e6c5-6541-4d21-b204-a60ac290a77a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fab1fef9-7892-46e7-8182-7cbfa0fa2811)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b9229ce9-d4ac-4f4d-aa7b-312852903607)
+Under standing Hper Parameter tuning 
+
+https://poloclub.github.io/cnn-explainer/
+
+
 
 
 
