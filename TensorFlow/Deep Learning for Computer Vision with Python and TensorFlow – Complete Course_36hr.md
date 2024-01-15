@@ -281,6 +281,9 @@ Under standing Hper Parameter tuning
 
 https://poloclub.github.io/cnn-explainer/
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6653b88c-529a-4e75-8116-db3e3ad522b4)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d29721b0-6a78-46a6-b6b3-1834c8ac81d9)
+
 
 
 
