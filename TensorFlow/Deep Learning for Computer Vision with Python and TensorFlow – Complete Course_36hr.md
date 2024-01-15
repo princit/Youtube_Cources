@@ -284,6 +284,13 @@ https://poloclub.github.io/cnn-explainer/
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/6653b88c-529a-4e75-8116-db3e3ad522b4)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/d29721b0-6a78-46a6-b6b3-1834c8ac81d9)
 
+https://setosa.io/ev/
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d26359c5-f6bd-4604-9435-f09e3d988361)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c2c5e296-aace-477e-8989-e2de435d7f91)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e3103e4b-8405-4150-bfea-fd22191d17c8)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/6f4df915-ae54-4605-adf6-83bfd380f4b3)
+
 
 
 
