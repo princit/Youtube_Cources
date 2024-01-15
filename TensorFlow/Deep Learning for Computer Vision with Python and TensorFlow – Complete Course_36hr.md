@@ -329,6 +329,22 @@ https://setosa.io/ev/
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f57e415a-4a1f-4ba9-bb4b-9be20b9abe48)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/364aa3e3-f7e0-465b-8437-6f1fac3429bd)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b2909a29-b0dc-41c5-8074-6f00156ec52a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3a29ecde-62c0-406a-8944-e6105bf7a257)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3747245d-7fa7-4000-aa8b-ac35382ae008)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3f98a90f-83d2-4cbf-8e88-cd3e7b0f86e6)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/9cfb35b4-a633-454e-9b72-4da1e7816f68)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a5886c5a-f5d4-4f6a-88b3-63c94dd9918b)
+
+
+
+
+
+
+
+
+
+
 
 
 
