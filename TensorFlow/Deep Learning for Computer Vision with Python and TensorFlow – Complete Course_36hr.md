@@ -313,6 +313,40 @@ https://setosa.io/ev/
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/cffc3fcb-c95d-4dc2-b0d1-325297f243af)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/c7ce98ca-ef95-4e09-8742-87e999bf38bf)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e0d875a9-5508-4724-87a9-bcf81ed4fd5b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ed6f7579-446c-4857-8238-d6f10fd545df)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4335976b-6979-4f41-bf7c-bd6168839562)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d076822f-dea5-40fa-8916-7378b175f4b8)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/01c69dba-df20-41cc-adad-98a2665b9852)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2e588228-0602-4efc-adab-3db370d64604)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5fa2dfdc-02a9-407e-9c00-d3a11ef6d80f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5818612d-bc1b-4238-b837-4f43fda91526)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/82665bf6-f7d4-4371-9aac-c543de477b4b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f73a95cf-bdbe-45ec-aff1-d79dae2c8725)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/92a19549-1743-4a36-ac3e-f5f65ec637d4)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f57e415a-4a1f-4ba9-bb4b-9be20b9abe48)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/364aa3e3-f7e0-465b-8437-6f1fac3429bd)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
