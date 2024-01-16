@@ -336,6 +336,9 @@ https://setosa.io/ev/
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/9cfb35b4-a633-454e-9b72-4da1e7816f68)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/a5886c5a-f5d4-4f6a-88b3-63c94dd9918b)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b1464ae3-b8da-4b41-a552-6f99d1403922)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d305f5c7-e275-43ce-80aa-89e2837b693a)
+
 
 
 
