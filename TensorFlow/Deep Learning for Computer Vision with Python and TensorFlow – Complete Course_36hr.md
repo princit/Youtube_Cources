@@ -339,6 +339,16 @@ https://setosa.io/ev/
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/b1464ae3-b8da-4b41-a552-6f99d1403922)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/d305f5c7-e275-43ce-80aa-89e2837b693a)
 8:36:59   
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cf271c1c-25ac-4f22-a906-b36c34b0abee)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/82ba8957-7686-443b-9077-b4b06463e3f5)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/669930ad-1332-4fc3-a9a6-afad9a7ce91e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/13054ace-4d02-44e4-9385-f6661de72c6d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e7b81151-555a-4311-a8aa-b0ad3120a26a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/631db15f-1f40-472d-83c2-a9a3dd111931)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cd098c6a-7add-4092-8989-624ca33db43a)
+First(conv) 6 layer fr feature extraction
+rest of them classfying image is paracitic on not 
+
 
 
 
