@@ -348,6 +348,41 @@ https://setosa.io/ev/
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/cd098c6a-7add-4092-8989-624ca33db43a)
 First(conv) 6 layer fr feature extraction
 rest of them classfying image is paracitic on not 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/700c025c-8e49-4927-b1b0-e6ad21c823b8)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2deb54e6-89d7-4256-905c-bd9ad5d0d198)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f65159fa-0f3b-4234-863a-3b3e34994b0f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/42db824d-094b-46b6-8a01-cdad7fc3e63d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c1d1bfa9-97e1-45d5-98d4-0cf496806d48)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e26ccea1-4d5d-4b0d-9d4d-6ff4a8a4bb30)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/956c3310-ba7a-48b9-9f3e-f1c6fbaa07fd)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/88c003f6-bd7d-49f6-9f75-e50944344e5a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/33c7ffa9-6691-45d9-97c6-6fc6b5ee0dda)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/666007bc-3cab-4129-916b-4031daed7a79)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2896d486-a97f-4466-96dc-db67d18818e3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7ffcab8f-f2cb-4f7f-9b5c-16ffbd978cc2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f8aa5cc9-96ec-4da5-a180-8cbbb79b5ee4)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2e620038-f468-43c0-aede-993835dd2254)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c10fc70e-64ce-4832-b967-54e2a603840e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f9f7875c-b72a-4e1b-b546-88e95e935352)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c1425cc2-bf71-4f2b-b364-be65a64f0d1a)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
