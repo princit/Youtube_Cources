@@ -403,7 +403,17 @@ rest of them classfying image is paracitic on not
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/6c45b18a-f7aa-4443-8a35-8fe543a4ad5d)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/19ea57ac-8b32-4e3b-89a3-0bf8b057e472)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/49c03d6d-bfca-4af1-8fc7-2ecbafee1c00)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d0b63985-dc73-4fca-a848-cb712133b1dc)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bf9e6d3b-9705-43f5-b4c7-5dbb8298face)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c5a11cf2-a02f-41fc-8c51-733537da726c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2ae89d33-af0d-4f2f-80f0-c18cfd846b18)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/214863c2-2cab-4667-8bd8-2faa797a5793)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fb4b3eab-2ed7-439e-baa5-167241971a1d)
+step up 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/140a6daa-3c41-4937-ba92-a68bf11fdcf8)
+cool down
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f5461671-2593-45e2-b936-0b80c65788fa)
 
 
 
