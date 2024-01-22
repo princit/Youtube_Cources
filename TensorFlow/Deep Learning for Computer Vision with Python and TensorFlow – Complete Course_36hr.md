@@ -414,7 +414,13 @@ step up
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/140a6daa-3c41-4937-ba92-a68bf11fdcf8)
 cool down
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f5461671-2593-45e2-b936-0b80c65788fa)
+1-cycle
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7612cc56-19fa-48ec-9170-1a07d4e362d3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/64f90c81-49bf-47c5-8fa1-fb2700faadb8)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/df91341d-5ce4-4c08-b109-fd2fc28a9a97)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4b771176-0768-4b84-861d-bbf6b2e486cf)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ae6d5a98-1456-4445-89a1-6fb3c9a6d9ed)
 
 
 
