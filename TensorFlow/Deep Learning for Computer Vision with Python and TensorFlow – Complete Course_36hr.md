@@ -421,8 +421,14 @@ cool down
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/4b771176-0768-4b84-861d-bbf6b2e486cf)
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/ae6d5a98-1456-4445-89a1-6fb3c9a6d9ed)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/cf606792-2361-40a4-9423-a21b7c4bce23)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/14812e81-1020-4898-b62f-8d8855022756)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/fbdea0bb-432c-42b2-a034-75606727dc37)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/95c063d2-5357-41d0-abdb-078a42cc3ffe)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/55cfcb0f-b170-4b55-b154-a61b23c5a3d0)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c7014d90-b64d-4690-acef-605c5f7936e4)
 
-
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/11ae1f79-ca47-4e28-a34b-6fd27bf3c30e)
 
 
 
