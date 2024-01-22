@@ -383,7 +383,11 @@ rest of them classfying image is paracitic on not
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/9525a8c8-814f-498c-88e3-9d53cf3544eb)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/2807fbfd-9eed-4dcf-91bd-50d143f7f8f5)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/0f47bddf-e30b-4515-b8a6-42c105171f7a)
- 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7f999c1f-a954-44df-b880-559222d9196b) 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/653ab583-87ef-4920-9303-cb162f5c55a2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/8f9ed690-1755-4d37-9aae-5688c726a020)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f29e3958-08b3-4835-bff7-a6998e696e3b)
 
 
 
