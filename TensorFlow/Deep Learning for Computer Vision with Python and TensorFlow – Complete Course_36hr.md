@@ -481,6 +481,31 @@ cool down
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/2565b00d-e4a7-46d3-ac50-05c38104ba5f)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/8bc526f3-cb6e-4164-a0fb-6ccc975befae)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a5c52afc-a54f-416d-a920-e581e2a1eeec)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7503656d-1ceb-46c2-8b7d-09a7628ed408)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bddb2c91-3263-45a3-b14f-68192ab1bf3b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2715b855-5beb-401d-8fcc-16493ee39f2a)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/170763b0-b851-4210-b99a-7ce06943bd01)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c08cb346-6e6d-4e9e-b390-9ab5d56eed52)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/570b773d-f0b8-4fb5-977e-9ec2ba0e8780)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/37dc0817-ac7a-45cf-b8e4-e6bd500f65eb)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bff6ba1f-c7e3-45f2-92df-63b192231bf3)
+
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/85473735-9d7f-4099-accf-79f0c20f8d6c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/98ba4fe6-0952-4607-a92e-d2a13e90631f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a5ef91c0-ce9d-4fbe-8fd0-50f3d26826bd)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2133ba0d-09dc-40b7-91ab-1fe303408393)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/50f1de0a-e2f2-49fa-a50a-e2a3a5bbe668)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7b2de4fe-70ff-4294-b31f-559ea0e43eef)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/25fe96c6-6cf0-47a5-81a1-4a8523190ac9)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/edd07a92-14ba-456a-99ce-d75579c91ed7)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d8001b2b-29ae-4526-9477-ddf973909244)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/09538c4a-6561-4b4c-bef4-d0f3ed0d9d86)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bc3f5806-eea2-4902-85f9-d6c89f658940)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b1b1c021-f882-4609-8d56-4b4632665e3c)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ae806649-5824-43c0-a47b-d494c5a7b4a3)
+ 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/4e71f191-db50-4a91-8c3c-69b9949ac291)
 
 
 
