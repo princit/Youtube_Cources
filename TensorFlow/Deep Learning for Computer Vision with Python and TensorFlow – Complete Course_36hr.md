@@ -515,9 +515,25 @@ cool down
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/f3f5f2a2-04d3-421d-93bf-5caf01c62b51)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/bd08bf5c-7dcf-419b-bbc2-ecd08de2a1a3)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/c3cd95cb-512a-441b-bfe4-80d400063b63)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/2cf05d09-8bce-4699-b79e-8e80ea293804)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7cbf9250-169c-4402-abe4-8723c09ca152)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/bbd95f14-d8f9-45ec-b070-bd9bda53a462)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/15653992-81ca-4b39-848b-7152c6f6b327)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/1277e21c-a007-434e-9512-d4ea90cc0c5f)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/589ba2b9-04c3-4445-aacc-d8419f031dd5)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/f6216bfb-6c1b-4ef3-9670-43c3834a3468)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ad27f151-6e81-4f04-978c-912bed6a0996)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3012c5c2-a7e0-4daa-a707-dc0abbcf83fa)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/18290203-5a73-4f83-8167-56ddb87504fe)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/73c97200-ab34-4a12-85bd-5a7ce687632e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/c43e0a81-5d08-4fd5-aafa-00d3eeb9f19e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/69c4d5f0-82c4-40be-b23c-a73b70b6f946)
 
-
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b627eed9-a23d-4f23-88b8-47b91817b59b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/e68758bd-6249-41df-b4ef-795bd0fa24c7)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/65a9313f-a844-4a4b-96aa-ea2a6212ba60)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/3589cdbe-8fcc-4aca-9649-d516bc677f74)
 
 
 
