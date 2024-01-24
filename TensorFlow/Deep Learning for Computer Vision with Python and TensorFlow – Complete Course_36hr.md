@@ -540,7 +540,20 @@ cool down
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/dfe2fc6f-45a9-413c-978b-e768bc5cb996)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/5940d547-d22d-4818-bc04-2b696e1c1b48)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/b01c6a4e-1efc-48aa-9a2a-4df761d30387)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/ccc3b251-3e70-4772-803c-5eeb9ed42a5a)
 
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/35751aa8-7ef8-4920-9dfa-c2e7847c4935)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/95a979d1-2833-4f77-8886-384914b0cb6d)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/eb09f047-0728-448d-a4f3-01de419b33d3)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/615b9c00-8ac9-4cc0-b196-94a9a554030b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/7a744f24-1036-4637-8b9e-4e193c86dccd)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/066e0ef2-35d8-4c28-8f3d-409850cb9d9b)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a0fbfbec-1535-402f-a6d4-1fe1404e130e)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/d7497227-5135-46d5-96a7-3c9ce55203f2)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/5be28f54-8616-4b21-9bc9-630934684624)
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/048c98e1-5b09-4c89-b75a-d2e2ce83bb04)
+16:00
 
 
 
