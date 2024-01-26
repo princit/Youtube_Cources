@@ -9,6 +9,9 @@
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/371b5a60-f8c2-4f1e-8b7e-b024b263ca96)
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/50161482-0642-45ae-bb9f-11bf79c00f7d)
 
+Inputs and outputs are multidimenioanl arrays call tensors
+![image](https://github.com/princit/Youtube_Cources/assets/29123911/a95060ba-8d39-4ff9-a661-10e2bdeed7f0)
+
 
 
 ![image](https://github.com/princit/Youtube_Cources/assets/29123911/71db1070-aab0-4430-9ebc-4d16d6ec55de)
